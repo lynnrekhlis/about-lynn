@@ -1,6 +1,6 @@
-# 👋 Hi, I'm Lynn Michelle
+# 👋 Hi, I'm Lynn
 
-### 🎯 Digital Product Wrangler | Professional Problem Solver
+### 🎯 Digital Product Wrangler | Professional Problem Solver @ Pizza Hut
 
 📍 **Location:** Dallas, TX 
 
